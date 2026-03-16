@@ -1,5 +1,7 @@
 # Alight Motion Mod APK Download Latest Version (No Watermark, Premium Unlocked)
 
+<meta name="google-site-verification" content="K3SKDK0vkFOADl6EC_oN5w93Rgwh4aogwgck65veQ-s" />
+
 Alight Motion Mod APK is one of most popular mobile motion graphics and video editing apps using by content creators in worldwide. It helps users create smooth animations, cinematic transitions, layered edits, reels, and social media videos directly on their Android mobile devices.
 
 This modified version unlocks all premium features, no watermark limitations, and provides advanced editing tools without subscription.
